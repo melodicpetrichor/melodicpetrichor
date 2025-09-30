@@ -3,7 +3,7 @@ anyone can interact, no dni tbh
 in general
 > feel free to cuddle with/hide behind my skin anytime
 > do not copy my skins, you can get insperation from it
-> i am usually on safe server
+> i am usually on 18+ server
 > i love making new friends. feel free to whisper to me, i am often off-tab
 
 for the rest of our alters
